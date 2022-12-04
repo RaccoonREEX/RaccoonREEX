@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @RaccoonREEX
+- 👀 I’m interested in money haha
